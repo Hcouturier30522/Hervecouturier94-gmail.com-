@@ -1,1 +1,3 @@
 
+Salutations distinguées cordialement et merci de votre compréhension pour le compte bancaire et de votre sites aimable, merci d'avance pour votre réponse, je vous souhaite une bonne journée et bon courage pour la suite de l'aventure avec vous !?...
+(couturier Hervé) 
